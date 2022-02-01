@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+Loves photography
+Favourite games are Valorant,PES and Ride 3.
